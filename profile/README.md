@@ -6,7 +6,7 @@
 
 <a href="https://k12guru.nl"><img src="https://1lesson1.email/gamez.png"></a>
 
-# Unblocked Games 76 🎮
+# Unblocked Games 76 At School🎮
 
 **Unblocked Games 76** is a leading platform for playing free unblocked browser games. Built for students, casual players, and anyone looking for quick fun, it offers a massive library of HTML5 titles that run smoothly without downloads or extra setup.
 
